@@ -1,4 +1,4 @@
-# Running A Blur Rinse
+# Running A Blue Rinse
 # DJ Oceans Ginsberg
 
 1. Neon Pegasus Nice Sprites - Skrillex & Parry Gripp 2:19
